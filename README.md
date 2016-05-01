@@ -1,0 +1,2 @@
+# bilgedenemereposu
+denemeaçıklaması 
